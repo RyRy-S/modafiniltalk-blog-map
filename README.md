@@ -26,6 +26,3 @@ This repository serves as a structured index of all published content on [Modafi
 
 ---
 
-## 🔗 Canonical Reference  
-All articles are published on [ModafinilTalk](https://modafiniltalk.com), the leading investigative platform for supplement safety and vendor transparency.
-
