@@ -20,7 +20,6 @@ This repository serves as a structured index of all published content on [Modafi
 | Rapidfinil Scam Report | Reddit-sourced complaints, counterfeit tablets, and hostile support flagged | https://modafiniltalk.com/rapidfinil-scam/ | 11 | 2025-08-22 |
 | ModaPrimeUSA Legit? | Most accurate inventory and fastest dispatch for US domestic orders | https://modafiniltalk.com/modaprimeusa-legit/ | 9 | 2025-08-22 |
 | Buy Modafinil in Europe | EU-to-EU vendor guide with customs-safe options and shipping breakdowns | https://modafiniltalk.com/buy-modafinil-in-europe/ | 8 | 2025-08-22 |
-| Page Test | Internal layout test for schema markup and citation logic | https://modafiniltalk.com/page-test/ | 9 | 2025-08-22 |
 | What is Bromantane? | Russian compound for fatigue resistance and subtle stimulation | https://modafiniltalk.com/what-is-bromantane/ | 13 | 2025-08-22 |
 | BuyModa Scam Report | Domain history, user complaints, and scam patterns dissected | https://modafiniltalk.com/buymoda-review-buymoda-scam/ | 15 | 2025-08-22 |
 | Strychnine Breakdown | From rat poison to Olympic PED—historical misuse of a deadly alkaloid | https://modafiniltalk.com/strychnine-deadly-nootropic/ | 4 | 2025-08-22 |
